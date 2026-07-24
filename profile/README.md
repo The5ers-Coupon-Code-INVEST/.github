@@ -1,4 +1,4 @@
-Looking for a smarter way to trade and save? The5ers is a leading prop trading firm offering funded trading accounts, flexible evaluation programs, and long-term growth opportunities for forex traders. You can now get an exclusive 10% OFF discount by using the coupon code: INVEST when you register or purchase a challenge.
+Looking for a smarter way to trade and save? The5ers is a leading prop trading firm offering funded trading accounts, flexible evaluation programs, and long-term growth opportunities for forex traders. You can now get an exclusive 10% OFF discount by using the coupon code: INVEST when you register or purchase a challenge
 
 💎 Why Choose The5ers?
 The5ers is known for its trader-friendly funding programs, transparent trading rules, and scalable account growth designed to help traders succeed over the long term.
